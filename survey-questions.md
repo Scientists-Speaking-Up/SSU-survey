@@ -1,4 +1,4 @@
-### Survey is online [here](https://docs.google.com/forms/d/e/1FAIpQLScHJGxXuQRAzq4CHME07NOJFityl_gkuXpjZz4WGxfrKJ-zOg/viewform_
+### Survey is online [here](https://docs.google.com/forms/d/e/1FAIpQLScHJGxXuQRAzq4CHME07NOJFityl_gkuXpjZz4WGxfrKJ-zOg/viewform)
 
 1. What scientific society or professional organization are you associated with? Please pick one society to focus on for the survey. You are welcome to complete the survey again for another society. You do not need to be a society member to research the society's response. 
   - V long list of societies, people can check one
